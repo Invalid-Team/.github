@@ -5,11 +5,12 @@ Learning more tech and make friend.
 -->
 
 ## How can I join to Invalid team?
-> 1. invited by other menber.
-> 2. passed at exam.
-> 3. ~~give me $$$$$$$$$.~~
-> 4. ~~u are bigname.~~
-*There have lot of way to join Invalid Team.
+> There have lot of way to join Invalid Team.
+> For Example:
+>> 1. invited by other menber.
+>> 2. passed at exam.
+>> 3. ~~give me $$$$$$$$$.~~
+>> 4. ~~u are bigname.~~
 
 ### What Should I do if I join to Invalid Team?
 > 1. Add qq group.
