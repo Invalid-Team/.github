@@ -25,5 +25,6 @@ Learning more tech and make friend.
 ##### How to Contact us?
 > 1. Discord PCZ#3455
 > 2. Send email to pcz780120@163.com.
+>> You must use your qq mail to send email or we will denied your apply.
 > 3. Try Find our Member in QQ group~~
 
