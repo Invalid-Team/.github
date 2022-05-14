@@ -22,7 +22,7 @@ Learning more tech and make friend.
 > 2. Cracked Cheats.
 > 3. Learning More Tech.
 > 4. Useful skills.
-> 5. Anoxia's Private Picture(Dress).
+> 5. ~~Anoxia's Private Picture(Dress).~~
 
 ##### How to Contact us?
 > 1. Discord PCZ#3455
