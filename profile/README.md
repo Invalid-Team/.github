@@ -9,7 +9,7 @@ Learning more tech and make friend.
 > 2. passed at exam.
 > 3. ~~give me $$$$$$$$$.~~
 > 4. ~~u are bigname.~~
-> *There have lot of way to join Invalid Team.
+*There have lot of way to join Invalid Team.
 
 ### What Should I do if I join to Invalid Team?
 > 1. Add qq group.
